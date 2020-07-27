@@ -1,1 +1,1 @@
-Crazy little called profile.
+Crazy little thing called profile.
